@@ -14,7 +14,6 @@
 
   [![Video 1](https://github.com/user-attachments/assets/e82200d0-f4b7-4a4b-921a-17bc5b8fa46a)](https://github.com/user-attachments/assets/f4482ce5-245f-43d7-ab25-3907b5232007)
 
-  [![Video 2](https://github.com/user-attachments/assets/f4482ce5-245f-43d7-ab25-3907b5232007)](https://github.com/user-attachments/assets/e82200d0-f4b7-4a4b-921a-17bc5b8fa46a)
 
 </p>
 
